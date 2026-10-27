@@ -1,1 +1,1 @@
-# Kuaf-r-g-zellik-merkezi-berver-tavsiye-sistemi-
+# Kuafor-guzellik-merkezi-berber-tavsiye-sistemi-
